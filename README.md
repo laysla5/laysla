@@ -8,7 +8,7 @@ Meu nome é laysla
 
 - ### Você pode entrar em contato comigo  📪
 
-00001103060831sp.al.educacao.sp.gov.br
+00001103060831sp@al.educacao.sp.gov.br
 
 
 
